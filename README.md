@@ -8,4 +8,4 @@
 
 ### Interests
 - **Lifting big weights!** 
-https://open.spotify.com/playlist/0HyHcZ24WrYyO5S2Zpi2Yv?si=7995977567254eee
+[text](https://open.spotify.com/playlist/0HyHcZ24WrYyO5S2Zpi2Yv?si=7995977567254eee)
